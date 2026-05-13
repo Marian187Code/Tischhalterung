@@ -6,4 +6,4 @@ zusätzliche Materialien:
 M4 Mutter
 M4x12 Schraube
 
-Wer auch immer das druckt, viel Spaß :)
+Wer auch immer das druckt, viel Spaß :).
